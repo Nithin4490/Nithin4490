@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **nithinpatnaikuni55@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1-bd4kxn86BVL3rx-pUELDbbLp6E8h0aR/view?usp=drive_link
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
